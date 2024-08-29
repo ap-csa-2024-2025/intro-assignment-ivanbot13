@@ -12,7 +12,14 @@
 7. Synchronize your repository.
 
 ## About Me
-Answer the questions below
-* Something interesting about me is
+Answer the questions below:
+* Something interesting about me is 
+I breathe ~78% nitrogen.
+
 * Ask Mr. Vu anything:
-* List your sports and extracurriculars you participate in
+ Does thou partake in biweekly gooning sessions at the local library on Tuesdays at 7:20 AM?
+
+* List your sports and extracurriculars you participate in 
+frc
+track
+ocad
