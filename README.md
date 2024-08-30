@@ -13,13 +13,8 @@
 
 ## About Me
 Answer the questions below:
-* Something interesting about me is 
-I breathe ~78% nitrogen.
+* Something interesting about me is: I breathe ~78% nitrogen.
 
-* Ask Mr. Vu anything:
- Does thou partake in biweekly gooning sessions at the local library on Tuesdays at 7:20 AM?
+* Ask Mr. Vu anything: Does thou partake in biweekly gooning sessions at the local library on Tuesdays at 7:20 AM?
 
-* List your sports and extracurriculars you participate in 
-frc
-track
-ocad
+* List your sports and extracurriculars you participate in: ocad, frc, track
