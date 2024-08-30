@@ -13,11 +13,11 @@
 
 ## About Me
 Answer the questions below:
-* Something interesting about me is: I breathe ~78% nitrogen.
+* Something interesting about me is: I breathe air.
 
 * Ask Mr. Vu anything: Does thou partake in ***biweekly gooning sessions*** at the local library on Tuesdays at 7:20 AM?
 
 * List your sports and extracurriculars you participate in: ocad, frc, track
 
-![...](https://static.wikia.nocookie.net/silly-cat/images/b/b8/War_of_the_Silly_and_Unsilly.jpg/revision/latest?cb=20240310230516)
 [hee hee hee haw](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
+![...](https://static.wikia.nocookie.net/silly-cat/images/b/b8/War_of_the_Silly_and_Unsilly.jpg/revision/latest?cb=20240310230516)
