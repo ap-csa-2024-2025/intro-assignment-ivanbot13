@@ -18,3 +18,5 @@ Answer the questions below:
 * Ask Mr. Vu anything: Does thou partake in **biweekly gooning sessions** at the local library on Tuesdays at 7:20 AM?
 
 * List your sports and extracurriculars you participate in: ocad, frc, track
+
+![...](https://static.wikia.nocookie.net/silly-cat/images/b/b8/War_of_the_Silly_and_Unsilly.jpg/revision/latest?cb=20240310230516)
